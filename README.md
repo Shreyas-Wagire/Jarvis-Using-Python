@@ -1,1 +1,0 @@
-![Uploading ReadmeHeader.gif…]()
